@@ -1,4 +1,4 @@
-Was born in the late 90s, dropped out of school in 2015, and have been into software development for over 6 years.
+Was born in the late 90s, and have been into software development for over 6 years.
 
 I'm:
 
